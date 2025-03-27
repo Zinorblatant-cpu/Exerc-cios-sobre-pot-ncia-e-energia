@@ -1,0 +1,1 @@
+# Exerc-cios-sobre-pot-ncia-e-energia
